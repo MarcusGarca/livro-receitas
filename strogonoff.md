@@ -17,19 +17,19 @@
 
 ### CARNE
 
-1 - Corte a carne selecionada em tirinhas, tempere com a pimenta, o cominho e o sal (coloco 1 ou 2 pitadas de cada, no máximo).
-2 - Deixe a carne descansar por 20 minutos para apurar o gosto.&nbsp;
-3 - Coloque óleo suficiente para fritar algumas tirinhas (entre 7 e 8). O óleo precisa estar bem quente.&nbsp;
-4 - Comece a fritura com poucas tirinhas para que o óleo não vire uma sopa, retire-as e reserve.&nbsp;
-5 - Não deixe fritar muito para que a carne não fique dura.&nbsp;
+1 - Corte a carne selecionada em tirinhas, tempere com a pimenta, o cominho e o sal (coloco 1 ou 2 pitadas de cada, no máximo).  
+2 - Deixe a carne descansar por 20 minutos para apurar o gosto.  
+3 - Coloque óleo suficiente para fritar algumas tirinhas (entre 7 e 8). O óleo precisa estar bem quente.  
+4 - Comece a fritura com poucas tirinhas para que o óleo não vire uma sopa, retire-as e reserve.  
+5 - Não deixe fritar muito para que a carne não fique dura.
 
 ### MOLHO
 
-1 - Troque o óleo da panela e refogue a cebola ralada.&nbsp;
-2 - Depois de dourada, jogue todas as tirinhas de carne dentro da panela e mexa.&nbsp;
-3 - Frite por 3 minutos e jogue na panela o creme de leite, catchup, extrato de tomate e mostarda.&nbsp;
-4 - Deixe ferver um pouco, sempre misturando.&nbsp;
-5 - Sirva com arroz branco e batata palha.&nbsp;
+1 - Troque o óleo da panela e refogue a cebola ralada.  
+2 - Depois de dourada, jogue todas as tirinhas de carne dentro da panela e mexa.  
+3 - Frite por 3 minutos e jogue na panela o creme de leite, catchup, extrato de tomate e mostarda.  
+4 - Deixe ferver um pouco, sempre misturando.  
+5 - Sirva com arroz branco e batata palha.  
 
 ## _INFORMAÇÕES ADICIONAIS_
 
